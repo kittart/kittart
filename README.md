@@ -1,6 +1,12 @@
-- 👋 Hi, I’m @kittart
+🫧•͈ᴗ⁃★
+𝐄𝐥𝐞𝐜𝐭𝐫𝐨𝐧𝐢𝐜 𝐈𝐧𝐟𝐨𝐫𝐦𝐚𝐭𝐢𝐨𝐧📡｜𝐄𝐦𝐛𝐞𝐝𝐝𝐞𝐝 𝐒𝐲𝐬𝐭𝐞𝐦𝐬🛠️
 
-<!---
-kittart/kittart is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+### ♡‧₊˚ ᴄʀᴇᴀᴍ ᴅʀᴇᴀᴍ ✧˖°
+ෆ🍪꒰ ' ᵕ ' ꒱🧁ෆ1
+꒰🍪꒱ @kittart
+꒰🍮꒱ INFP--♒
+
+#### 𝐌𝐲 𝐥𝐢𝐟𝐞 𝐰𝐢𝐭𝐡𝐨𝐮𝐭 𝐲𝐨𝐮 𝐢𝐬 𝐦𝐢𝐬𝐞𝐫𝐲...☁️ ໒꒱°.*
+- 📧 邮箱: [2398318817@qq.com](mailto:2398318817@qq.com)
+- 🌐 GitHub: [kittart](https://github.com/kittart)
+
